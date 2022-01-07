@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Aarshh
-- 👀 I’m interested in universe and things that surround it ;)
+- 👀 I’m interested in universe and things which surround it ;)
 - 🌱 I’m currently learning how to unlearn.
 - 💞️ I’m looking to collaborate on video-solving problems from leelavati ganit.
 - 📫 Hello me at: aarshchotalia@gmail.com +91 9426310478
